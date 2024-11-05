@@ -1,0 +1,1 @@
+# link-kredivo-cs
